@@ -10,7 +10,7 @@
 
 - 📫 How to reach me: **aggarwal.soumil15@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xdcBb5xTbOlYkp459P7NHFCor2xLeP3n/view?usp=sharing](https://drive.google.com/file/d/1xdcBb5xTbOlYkp459P7NHFCor2xLeP3n/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1-Tx3_KD1AumCZPstEE6wHD05yvR6638V/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
